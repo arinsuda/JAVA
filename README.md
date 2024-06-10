@@ -1,1 +1,1 @@
-My name's Arin or Sixtiena ohhhh yeahhhhh
+# WELCOME TO MY REPOSITORY FOR ONLY JAVA
